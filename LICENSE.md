@@ -1,4 +1,4 @@
-# 
+# ultimate nft sniper bot | slippage-control + bulk-purchases is the best nft sniper bot, featuring slippage-control and bulk-purchases. Fast, smart, and optimized for NFT trading
 
 
 
